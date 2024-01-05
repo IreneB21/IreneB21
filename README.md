@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![Cover](https://github.com/NicolasBrondin/NicolasBrondin/blob/master/img/cover.jpg)
+![Cover](https://github.com/IreneB21/IreneB21/main/img/image7_copie.jpeg)
